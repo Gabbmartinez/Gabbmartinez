@@ -6,3 +6,4 @@
 ## Na área de projetos tem alguns dos projetos que fiz na escola, confere lá!
 - Instagram: @Gabrie_lpanez
 - Email: 00001105606818SP@al.educacao.sp.gov.br
+
